@@ -1,2 +1,2 @@
-# llooogg.github.io/#/xm7ziuqyudfusnkffsqpqkgxt2siue/U2FsdGVkX1PwLeSfEbes7jBHO2WAbHZqKt24esCmAPhmkvNx5CwYEdQqLt
+# llooogg.github.io
 bla bla
